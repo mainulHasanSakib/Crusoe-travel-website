@@ -1,4 +1,4 @@
-# Welcome to Crousoe Survival and Camping!!
+# Welcome to Crosoe Survival and Camping!!
 
 * Please visit this website and explore many things about survival skills,tips,requirements .
 -  Click here 👉[Crousoe Survival and Camping](https://crusoe-travel.web.app/)
